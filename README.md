@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @M-Devil
 - 👀 I’m interested in Cyber security
-- 🌱 I’m currently learning Cyber security(B.Tech)
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I have completed my graduation in Cyber security(B.Tech)
+- 💞️ I’m looking to collaborate on Cyber security related job.
 - 📫 How to reach me(bhuinmonotosh@gmail.com)
 - 😄 Pronouns: Devil
 - ⚡ Fun fact: watching doraemon
